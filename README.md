@@ -2,4 +2,4 @@
 
 **This is My Repo**
 ===========
-![alt text](https://tainted-adopts.deviantart.com/art/Welcome-596627147)
+![alt text](http://www.socialventurepartners.org/arizona/2017/01/20/welcome-new-partners/)
